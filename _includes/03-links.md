@@ -1,1 +1,1 @@
-![Ashutosh Patole](https://github.com/AshutoshPatole)
+[Ashutosh Patole](https://github.com/AshutoshPatole)
